@@ -1,1 +1,1 @@
-![undraw_code](https://user-images.githubusercontent.com/82118914/215302458-b508cfee-b870-4f85-a8ae-37df81e65ba9.svg)
+![undraw_woman_ffrd](https://github.com/user-attachments/assets/901c9db4-7df3-4817-8ab2-b0c9bac7d632)
